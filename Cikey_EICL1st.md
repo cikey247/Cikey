@@ -19,7 +19,14 @@ Maybe I‘ll do my best. ?%
 
 ## Notes
 ### 2024.6.24
-xxx
+Day1
+Firstly,I learned what types of words are in part 1.
+And then,I learned how to make a sentence in part 2 and part3.
+finally,I know what the adv.and adj. is .in part4 and part5.And how to use on\in\at.
+
+Saved examples:
+1.The coat similar to yours is a birthday gift from my boyfriend. 
+2.Girls brave enough to pursue their dreams deserve to be loved. 
 
 ### 2024.6.25
 xxx
