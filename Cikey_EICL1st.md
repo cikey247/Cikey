@@ -19,7 +19,16 @@ Maybe I‘ll do my best. ?%
 
 ## Notes
 ### 2024.6.24
-xxx
+Firstly,I learned what the types of words are in part 1,such as pronoun、number、nous、verb.
+I understanding deep it from examples.
+In next part,I learned how to make a word.If you want to make a word，you need have dubject、predicate and object.If you want to make it more abundant,you can add time, place and more abjective.
+In part 5,I learned how to distinguishi adv.and abj.and learned in\on\at in part 6.
+
+Saved example:
+The coat similar to yours is a birthday gift from my boyfriend.
+Girls brave enough to pursue their dreams deserve to be loved. 
+
+
 
 ### 2024.6.25
 xxx
