@@ -33,7 +33,7 @@ Saved examples:
 Daily english dictation 3:What time do you have?I have 5 o'clock.
 Daily english dictation 4:There are 3 things  never to do people,relation
 Daily english dictation 5:Don't never let somebody tell you,you can't do some.
-Daily english dictation 5:I have come here to true ,and krik s,and I'm all out of
+Daily english dictation 5:I have come here to true ,and krik s,and I'm all out of 
 
 ### 2024.6.26
 xxx
