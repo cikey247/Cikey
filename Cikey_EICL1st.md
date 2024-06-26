@@ -40,6 +40,7 @@ Daily english dictation 6:
 Daily english dictation 7:
 Daily english dictation 8:
 Daily english dictation 9:
+11
 
 听写笔记的方法和演示，以 https://www.bilibili.com/video/BV1U7411a7xG 为例，仅参考：
 
