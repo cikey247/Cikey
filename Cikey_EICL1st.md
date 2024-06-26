@@ -23,10 +23,10 @@ Day1 Firstly,. learned what types of words are in part 1. And then, learned how 
 Saved examples: 1.The coat similar to yours is a birthday gift from my boyfriend. 2.Girls brave enough to pursue their dreams deserve to beloved.
 
 ### 2024.6.25
-Dally english dictation 3:what time do you have?i have 6 o'clock, Dally engtish dictation 4:There are 3 things never to do people relatiorDally english dictation 5:Don't never let somebody tell you,you can't do some. Dally english dictation 5: have come here to true and kriks,and i'm all out of
+Daily english dictation 3:what time do you have?i have 6 o'clock, Daily engtish dictation 4:There are 3 things never to do people relatiorDaily english dictation 5:Don't never let somebody tell you,you can't do some. Daily english dictation 5: have come here to true and kriks,and i'm all out of
 
 ### 2024.6.26
-xxx
+
 
 听写笔记的方法和演示，以 https://www.bilibili.com/video/BV1U7411a7xG 为例，仅参考：
 
