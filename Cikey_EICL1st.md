@@ -36,7 +36,10 @@ Daily english dictation 5:Don't never let somebody tell you,you can't do some.
 Daily english dictation 5:I have come here to true ,and krik s,and I'm all out of 
 
 ### 2024.6.26
-xxx
+Daily english dictation 6:
+Daily english dictation 7:
+Daily english dictation 8:
+Daily english dictation 9:
 
 听写笔记的方法和演示，以 https://www.bilibili.com/video/BV1U7411a7xG 为例，仅参考：
 
